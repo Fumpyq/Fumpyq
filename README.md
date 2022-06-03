@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sasha2and2
+- 👋 Hi, I’m Fumpyq
 - 👀 I’m interested in Blender, Unity3d, Drawing(Sai,Photoshop,Krita)
 - 🌱 I’m currently learning what i'm interested in
 - 💞️ I’m looking to collaborate on idk =)
